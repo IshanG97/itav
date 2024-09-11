@@ -1,1 +1,1 @@
-
+ITAV (It Takes A Village) enables various demographics of individuals to help each other on their strengths
